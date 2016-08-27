@@ -1,1 +1,1 @@
-https://tasukujp.github.io/
+https://tasukujp.github.io
